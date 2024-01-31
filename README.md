@@ -4,4 +4,4 @@ My work involves in-depth SQL queries to obtain data from various data sources. 
 
 As a senior Data and Research Analyst, I coordinate projects with stakeholders, communicate across the departments and set project plans for the team.
 
-In my previous roles spanning over 10 years, I worked in Operations/Supply Chain side of the business. Those roles were very team interactive, locally as well as globally. Supply Chain is a very customer demanding field where a constant line of communication along with the anticipation of customer requirements is the key. This experience will help achieve the objectives of this position. 
+In my previous roles spanning over 10 years, I worked in Operations/Supply Chain side of the business. Those roles were very team interactive, locally as well as globally. Supply Chain is a very customer demanding field where a constant line of communication along with the anticipation of customer requirements is the key. This experience has always helped me in participating in different scales of project as a stakeholder and as a PM. 
